@@ -6,3 +6,5 @@ B.Balaji Smart Waste Management System For Metropolitan Cities
 Tinkercad link -https://www.tinkercad.com/things/kSwcwk4eHw4
 mk mohamed fardeen Smart Waste Management System For Metropolitan Cities
 Tinkercad link - https://www.tinkercad.com/things/6WWe6elifsx
+G.YOGESGWARAN-SMART WASTE MANAGEMENT
+TINGERCAD LINK-https://www.tinkercad.com/things/g3AQwuxPXvz
